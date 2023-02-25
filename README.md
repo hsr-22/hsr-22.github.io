@@ -1,7 +1,7 @@
 # Harsh S Roniyar
 ## <sub>"Exploring newer possibilities"</sub> 😃
 
-` Welcome to this page! ` 👋
+`Welcome to this page!` 👋
 
 Hi, I am Harsh Roniyar.
 
